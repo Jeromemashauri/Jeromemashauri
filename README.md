@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jeromemashauri
 - 👀 I’m interested in ...Music 
 - 🌱 I’m currently learning ...Aduio production 
-- 💞️ I’m looking to collaborate on ...youtbe 
+- 💞️ I’m looking to collaborate on ...youtbe: https://bit.ly/3zhLnig
 - 📫 How to reach me ...email:jeromemashauri12@gmail.com
 
 <!---
